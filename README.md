@@ -51,5 +51,3 @@ The business has generated a **total revenue of ₹1,51,619** from **39 orders**
 
 ---
 
-
-If you want, I can convert this into a **perfect report format (for your college/project submission)** 👍
